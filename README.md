@@ -2,7 +2,7 @@
 - 👀 I’m interested in drawing, coding/programming, and many others!
 - 🌱 I’m currently learning drawing, programming/coding in python
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me : send a request ofcourse!
+- 📫 How to reach me : umm- 
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: i have zero knowledge about python (just started learning) and zero knowledge about using this website 😅 
 
